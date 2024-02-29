@@ -8,4 +8,4 @@ Creating a repository for practising github
 [LinkedIn Profile](https://www.linkedin.com/in/harneetsinghlamba/)
 
 
-![pexels-photo-674010](https://github.com/harneetslamba/practise/assets/7391549/384797b1-8412-4972-889c-1cd1bdbe2fca)
+![Random Picture](https://github.com/harneetslamba/practise/assets/7391549/384797b1-8412-4972-889c-1cd1bdbe2fca)
